@@ -19,11 +19,10 @@
 
 ![tumblr_70e64ab5ffde106f3073987966a830fd_3096c9ba_1280](https://github.com/user-attachments/assets/5ae1bae5-0a87-47ce-ab03-04e4b6c2418c)
 
- ℌ𝔶𝔲𝔫/𝔏𝔦𝔶𝔞    .    14    ,,        𝔞𝔫𝔶 𝔭𝔯𝔫𝔰 .   ᶻ 𝗓 𐰁 .ᐟ       
+ !! ℜ𝔢𝔫𝔫/ℌ𝔢𝔶𝔲𝔫𝔤/𝔏𝔦𝔶𝔞   .    14    ,,        𝔞𝔫𝔶 𝔭𝔯𝔫𝔰 .   ᶻ 𝗓 𐰁 .ᐟ       
                                                  
 𝔱𝔦𝔯𝔢𝔡     .,      𝔐𝔬𝔰𝔱𝔩𝔶 𝔬𝔣𝔣𝔱𝔞𝔟   .      ,  (𝔴2𝔦 𝔦𝔣 𝔲 𝔴𝔞𝔫𝔫𝔞 𝔦'𝔩𝔩 𝔯𝔢𝔰𝔭 𝔦𝔣 𝔦 𝔠𝔞𝔫)   ᝰ.ᐟ✮⋆˙
 
 ![pct622](https://github.com/user-attachments/assets/2accf0a5-4374-4848-8435-8907f71d013b)
 ![z66qxu](https://github.com/user-attachments/assets/f788df1a-40bf-4cde-b3cf-41a206f4c036)
 
-![50ad745ea5c3708f600739b618d90d68](https://github.com/user-attachments/assets/c519333a-cfa8-42a3-8649-76ecd32f6499)        Jumpscareee !!! >_<
