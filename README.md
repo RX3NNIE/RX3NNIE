@@ -1,6 +1,7 @@
 ![z66qxu](https://github.com/user-attachments/assets/f788df1a-40bf-4cde-b3cf-41a206f4c036)
 ![pct622](https://github.com/user-attachments/assets/2accf0a5-4374-4848-8435-8907f71d013b)
 
+![tumblr_70e64ab5ffde106f3073987966a830fd_3096c9ba_1280](https://github.com/user-attachments/assets/5ae1bae5-0a87-47ce-ab03-04e4b6c2418c)
 
    
  ⠀𓏸     𓈒   ⠀𓏸     𓈒      ⠀𓏸  " ℑ𝔩𝔶𝔰𝔪 𝔪𝔢𝔦,, 𝔦'𝔩𝔩 𝔟𝔢 𝔴𝔦𝔱𝔥 𝔶𝔬𝔲 𝔲𝔫𝔱𝔦𝔩 𝔱𝔥𝔢 𝔢𝔫𝔡. 𝔶𝔬𝔲 𝔩𝔬𝔳𝔢 𝔪𝔢 𝔱𝔬𝔬, 𝔯𝔦𝔤𝔥𝔱? "   ⠀𓏸     𓈒   ⠀𓏸     𓈒 ˙✧˖°📷 ༘ ⋆｡˚
